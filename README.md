@@ -11,3 +11,5 @@ i would use this book: https://www.oreilly.com/library/view/python-cookbook-3rd/
 "I'd still like to encourage you to apply.  We only have one applicant right now.  So if you are still interested, there is a good chance you could get it"
 
 im gonna finish applying this week
+
+the ended up rehiring the person who taught it last year ... oh well ... ill just record some youtube tutorials after im done with apps in dec/jan
